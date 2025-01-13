@@ -1,1 +1,1 @@
-# 2-semestor
+# 2-semestr
